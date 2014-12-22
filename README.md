@@ -35,9 +35,160 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A posie of gilloflowers eche differing from other in colour and odour, yet all sweete. By Humfrey Gi
+
+1. ❧To the Worſhipfull his very good
+Maiſter Edward Cope of Edon, Eſquier, Humfrey
+Gifforde wiſheth many yeeres of proſperities.
+
+1. To the Reader.
+
 #####Body#####
-A posie of gilloflowers eche differing from other in colour and odour, yet all sweete. By Humfrey Gi
+
+1. ¶An Epiſtle written in Italian, by
+Maiſter Claudius Ptholomoeus, for the comforting
+of his very louing and learned friend, Maiſter Dionyſius,
+beeing fallen into pouerty, and engliſhed by
+H. G.
+
+1. An anſwere of Maiſter Clodius Ptholomoeus,
+to a Letter ſente him by a friende, that meruelled
+wherefore hee hauing ſuch learning, remayned
+in ſo meane and baſe an eſtate
+of calling.
+
+1. A tranſlation out of french, of a Supplication
+preſented by Iohn Meſchinot, Eſquire, vnto the
+Duke of Brittane his Lorde and Maiſter, wherein
+he nameth himſelfe the Baniſhed from
+Ioyfulneſſe, by
+H. G.
+
+1. Tranſlated out of Italian.
+
+1. ¶Maiſter Gaſparinus a Phiſition,
+by his cunning, healeth fooles.
+
+1. ¶The Florentines and the Citizens of
+Bergamaſke, bring all their Doctors to a diſputation,
+and they of the citie of Bergamaſke, with a prety pollicie
+confuted, and had the victorie of the Florentines.
+
+1. Of one that hyred a fooliſh ſeruaunt,
+and was ſerued accordingly.
+
+1. ¶To the Worſhipfull John Stafford of
+Bletherwicke Eſquier, Humfrey Gifford moſt
+humbly ſendeth greeting.
+D      DOe guide my pathes, O Lorde my God,   T   that I walke not aſtray:O     O who can mount thy 
+1. To his approued friend.
+
+1. The life of man metaphorically compared
+to a ſhippe, ſayling on the ſeaes in
+a tempeſt.
+
+1. A dolefull Dumpe
+
+1. In praiſe of the contented
+minde.
+
+1. In the praiſe of Friendſhip.
+
+1. A commendation of
+Peace.
+
+1. For Souldiers.
+
+1. To his friende.
+
+1. A renouncing of loue.
+
+1. A will or Teſtament.
+
+1. A Complaynt of a Louer.
+
+1. For his friende.
+
+1. Somewhat made of nothing, at a
+Gentlewomans requeſt
+
+1. Of the inſtability of Fortune.
+
+1. Of the vanitie of this life.
+
+1. Of the vanitie of the
+world.
+
+1. A Leſſon for all eſtates.
+
+1. A Dreame.
+
+1. A Dreame.
+
+1. For a Gentlewoman.
+
+1. For a Gentlewoman.
+
+1. A Godly diſcourſe.
+
+1. In the praiſe of Muſike.
+
+1. A pleaſaunt Ieſt.
+
+1. A Newyeeres gift to a
+Gentlewoman.
+
+1. A delectable Dreame.
+
+1. To his moſt faythfull
+friend.
+
+1. ¶One that had a frowarde Huſband,
+makes complaynt to her mother: Written
+in French, by Clement Marott,
+
+1. His Friend W. C. to Miſtres
+F. K. whom he calls his Captaine.
+
+1. The complaynt of a ſinner.
+
+1. ¶Of the vncontented eſtate
+of Louers.
+
+1. A Newyeres gift to
+Miſtreſſe C. P.
+
+1. A ſtraunge hiſtorie.
+
+1. Amery leſt.
+
+1. To his friend.
+
+1. A Newyeeres gift to Maiſter
+G. R.
+
+1. A Tranſlation out of French.
+
+1. A Complaint of a Sinner.
+
+1. A Dumpe.
+
+1. A Dumpe by his friende. G. C.
+
+1. For his friend.
+
+1. A ſtraunge Hiſtorie.
+
+1. Farewell Court.
+
+1. Farewell Court.
+
+1. A Preface to certaine queſtions and
+Riddles enſuing, tranſlated out of Italian verſe,
+into engliſh verſe,
+by H. G.
+
+1. The ſolutions of the riddles.
+
 **Types of content**
 
   * There are 2644 **verse** lines!
